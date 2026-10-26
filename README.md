@@ -37,4 +37,4 @@ When the steering wheel on *Sugar Rush* breaks, **Wreck-It Ralph** and **Vanello
 * Learn more about the movie on [Disney's Official Website](https://disney.com)
 * Watch trailer highlights and explores character details online!
 
-![Ralph Breaks the Internet Poster](https://tvtropes.org/pmwiki/pmwiki.php/WesternAnimation/RalphBreaksTheInternet)
+![Ralph Breaks the Internet Poster](https://share.google/72Vs1U5ja3ucpPySA)
